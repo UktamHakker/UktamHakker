@@ -14,7 +14,7 @@ Here are some ideas to get you started:
 <ul>
   <li><a href="https://t.me/Alloh_yagona_va_buyuk_zotdir">Telegram</a></li>
   <li><a href="https://instagram.com/__oktam__2003__?igshid=MjljNjAzYmU=">Instagram</a></li>
-  <li><a href="+998996285038">Telephone:+998996285038</a></li>
+
 </ul>
 
 </body>
